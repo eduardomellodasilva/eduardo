@@ -249,3 +249,7 @@ Pela civilização do nosso país e pela vida feliz do nosso povo,
 Vamos levantar-nos com mais bravura para uma grande luta.
 
 Viva Pyongyang, a grande capital da minha pátria, que é o nosso amor, o nosso orgulho, a nossa dignidade e a nossa glória! (Fim)
+
+---
+
+[[Youtube/Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda\|Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda]]
