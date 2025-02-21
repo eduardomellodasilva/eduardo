@@ -126,7 +126,7 @@
 
 ---
 
-traduza [[Sem título\|Sem título]] para português:
+traduza [[VOCÊ SABE O QUE É ZONA TÉRMICA DE PERIGO\|VOCÊ SABE O QUE É ZONA TÉRMICA DE PERIGO]] para português:
 
 **Discurso da respeitada Camarada Kim Jong Un no lançamento da construção de 10.000 casas na Fase 4 do Distrito de Hwasong**
 
@@ -252,4 +252,4 @@ Viva Pyongyang, a grande capital da minha pátria, que é o nosso amor, o nosso 
 
 ---
 
-[[Youtube/Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda\|Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda]]
+[[Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda\|Altos executivos das big techs e Faria Lima estão na cúpula do Ministério da Fazenda]]
